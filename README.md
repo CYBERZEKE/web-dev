@@ -5,4 +5,12 @@
 
 -STFF INNIT 
 # repositry
-- [WEBDEV](example.com)
+- [https://github.com/CYBERZEKE/web-dev](https://github.com/CYBERZEKE/web-dev)
+### Zeke the yeager
+GOD OF HIGH SCHOOL
+ 
+DOPE ASS SHIT
+
+I AM A FREAKIN GENIUS 
+
+
